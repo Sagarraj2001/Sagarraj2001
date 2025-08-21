@@ -8,7 +8,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/Sagarraj2001](https://github.com/Sagarraj2001)
 
-- 💬 Ask me about **Html,CSS,JavaScript,Python,Java,Node js,Express js, MongoDB**
+- 💬 Ask me about **Html,CSS,JavaScript,Java,React js,Node js,Express js,MySQL,MongoDB**
 
 - 📫 How to reach me **sagarraj19042001@gmail.com**
 
