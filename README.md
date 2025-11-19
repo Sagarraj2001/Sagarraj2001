@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **sagarraj19042001@gmail.com**
 
-- 📄 Know about my experiences https://drive.google.com/file/d/1n9b-8zyHQY_pUV8JEUG-22B7a8C6gNzr/view?usp=sharing
+- 📄 Know about my experiences https://drive.google.com/file/d/154W912htwo61uSLFbB0LlWtNDlL1N4pK/view?usp=drive_link
 
 - ⚡ Fun fact **I'm funny 😉**
 
